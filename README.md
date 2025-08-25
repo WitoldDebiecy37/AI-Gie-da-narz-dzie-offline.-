@@ -1,0 +1,1 @@
+# AI-Gie-da-narz-dzie-offline.-
